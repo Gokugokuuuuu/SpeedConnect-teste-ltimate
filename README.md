@@ -1,1 +1,0 @@
-# SpeedConnect-teste-ltimate
